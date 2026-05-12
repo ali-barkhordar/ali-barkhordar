@@ -1,16 +1,15 @@
-## Hi there 👋
+# Ali Barkhordar
 
-<!--
-**ali-barkhordar/ali-barkhordar** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Founder & CEO of **Ultimate Business Capital LLC**, a Wyoming-based specialty finance firm established in 2014.
 
-Here are some ideas to get you started:
+## About
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Based between Sheridan, Wyoming and Orange County, California. Over 20 years in specialty finance and commercial lending.
+
+Associate in Arts, Cañada College.
+
+## Links
+
+- Personal site — [alibarkhordar.com](https://alibarkhordar.com)
+- Ultimate Business Capital — [ultimatebusinesscapital.com](https://ultimatebusinesscapital.com)
+- UBizCap — [ubizcap.com](https://ubizcap.com)
