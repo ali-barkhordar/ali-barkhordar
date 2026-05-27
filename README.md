@@ -4,12 +4,11 @@ Founder & CEO of **Ultimate Business Capital LLC**, a Wyoming-based specialty fi
 
 ## About
 
-Based between Sheridan, Wyoming and Orange County, California. Over 20 years in specialty finance and commercial lending.
+Focused strictly on institutional transactions, commercial underwriting, and wholesale capital allocation frameworks. Over 20 years of experience in specialty finance and commercial corporate lending structures. 
 
 Associate in Arts, Cañada College.
 
-## Links
+## Official Links
 
-- Personal site — [alibarkhordar.com](https://alibarkhordar.com)
-- Ultimate Business Capital — [ultimatebusinesscapital.com](https://ultimatebusinesscapital.com)
-- UBizCap — [ubizcap.com](https://ubizcap.com)
+* **Personal Site** — [alibarkhordar.com](https://alibarkhordar.com)
+* **Ultimate Business Capital** — [ubizcap.com](https://ubizcap.com)
