@@ -1,6 +1,6 @@
 # Ali Barkhordar
 
-Founder & CEO of **Ultimate Business Capital LLC**, a Wyoming-based specialty finance firm established in 2014.
+Founder & CEO of **Ultimate Business Capital LLC**, a specialized Wyoming-based commercial finance firm. Active in corporate finance and commercial underwriting operations since 2014.
 
 ## About
 
