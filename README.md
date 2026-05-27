@@ -11,4 +11,4 @@ Associate in Arts, Cañada College.
 ## Official Links
 
 * **Personal Site** — [alibarkhordar.com](https://alibarkhordar.com)
-* **Ultimate Business Capital** — [ubizcap.com](https://ubizcap.com)
+* **Ultimate Business Capital** — [ultimatebusinesscapital.com](https://www.ultimatebusinesscapital.com/)
