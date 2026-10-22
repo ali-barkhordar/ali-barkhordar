@@ -1,14 +1,18 @@
 # Ali Barkhordar
 
-Founder & CEO of **Ultimate Business Capital LLC**, a specialized Wyoming-based commercial finance firm. Active in corporate finance and commercial underwriting operations since 2014.
+Ali Barkhordar is the Founder and Chief Executive Officer of Ultimate Business Capital LLC (UBC), a Wyoming specialty finance firm that buys performing commercial receivables after independently underwriting each position. He has worked in specialty finance and commercial underwriting since 2014.
 
-## About
+## Focus
+- Underwriting performing commercial receivables
+- Receivables duration and collection performance
+- Data discipline in commercial underwriting
 
-Focused strictly on institutional transactions, commercial underwriting, and wholesale capital allocation frameworks. Over 20 years of experience in specialty finance and commercial corporate lending structures. 
+## Selected Writing
+- [Why a Sale of Future Receivables Is Not a Loan](https://ultimatebusinesscapital.com/post/why-a-sale-of-future-receivables-is-not-a-loan)
+- [AI Funding Agents: Why the Advantage Belongs to Whoever Holds the Better Data](https://ultimatebusinesscapital.com/post/ai-funding-agents-why-the-advantage-belongs-to-whoever-holds-the-better-data)
 
-Associate in Arts, Cañada College.
+## Education
+Associate in Arts, Cañada College
 
-## Official Links
-
-* **Personal Site** — [alibarkhordar.com](https://alibarkhordar.com)
-* **Ultimate Business Capital** — [ultimatebusinesscapital.com](https://www.ultimatebusinesscapital.com/)
+## Elsewhere
+[alibarkhordar.com](https://alibarkhordar.com) · [Ultimate Business Capital](https://ultimatebusinesscapital.com) · [LinkedIn](https://linkedin.com/in/alibarkhordar) · [X](https://x.com/AliBarkhordar_) · [Medium](https://medium.com/@ali-barkhordar) · [Substack](https://substack.com/@alibarkhordar)
