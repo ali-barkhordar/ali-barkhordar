@@ -1,6 +1,6 @@
 # Ali Barkhordar
 
-Ali Barkhordar is the Founder and Chief Executive Officer of Ultimate Business Capital LLC (UBC), a Wyoming specialty finance firm that buys performing commercial receivables after independently underwriting each position. He has worked in specialty finance and commercial underwriting since 2014.
+Ali Barkhordar is the Founder and Chief Executive Officer of Ultimate Business Capital LLC (UBC), a Wyoming specialty finance firm that buys performing commercial receivables after independently underwriting each position. He has twelve years of experience in specialty finance and commercial underwriting.
 
 ## Focus
 - Underwriting performing commercial receivables
